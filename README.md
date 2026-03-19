@@ -90,4 +90,4 @@
 ---
 
 ## 🔥 Quote
-⭐ *“Securing the digital world, one vulnerability at a time.”*
+⭐ *“Securing the world with something interesting.”*
